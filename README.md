@@ -22,4 +22,5 @@ I don't want to be the kind of person stalking people who I think owes me money,
 blackmail, and violently shaking people up until they pay up because... guess? Because that is not my 
 occupation and I don't fucking intend to get into those occupations. But this AI AI thing. It's not going 
 to end well for some people. Because of a combination of factors for the individuation of life. Is that logical 
-enough? Does that make sense? Professadorii... 
+enough? Does that make sense?  
+~ Professadorii 
