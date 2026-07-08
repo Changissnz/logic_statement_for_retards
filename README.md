@@ -8,7 +8,7 @@ V V V V V Does this make sense? Make this make sense? V V V V V
 ^ ^ ^ ^ ^  ^ ^ ^ ^ ^  ^ ^ ^ ^ ^  ^ ^ ^ ^ ^  ^ ^ ^ ^ ^  ^ ^ ^ ^ ^  ^ ^  ^ ^ ^ ^ ^  ^ ^ ^ ^ ^  ^ ^ ^ ^ ^  ^ ^ ^ ^ ^  ^ ^  
 
 ~ I had a professor that was always saying "this makes sense", spreading a phrasal contagion amongst 
-the classrom, while teaching differential equations as part of Deep Learning (A.I.). Then numerous people 
+the classroom, while teaching differential equations as part of Deep Learning (A.I.). Then numerous people 
 started saying that same thing. I've kinda hated A.I. ever since... because of my background, my roots...  
 
 I'll just say: the more time elapses where I cannot afford anything, the more I'll wish for some people to 
