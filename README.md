@@ -17,3 +17,8 @@ was when I was 9. And ever since exiting higher education, stomaching the lies o
 Yeah... yeah... just keep up with the whole "AI AI" thing. I don't want some people to become financially 
 ruined when the "AI bubble" bursts... but then again, minusing the "I don't", I just wrote that. Hmmm... 
 quantum? The next big thing? Are the Russians and Chinese behind this, you stupid fuck? 
+
+I don't want to be the kind of person stalking people who I think owes me money, setting up honeypots for 
+blackmail, and violently shaking people up until they pay up because... guess? Because that is not my 
+occupation and I don't fucking intend to get into those occupations. But this AI AI thing. It's not going 
+to end well for some people. Because of a combination of factors for the individuation of life. 
